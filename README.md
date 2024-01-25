@@ -1,2 +1,3 @@
 # ActividadDAW
- 
+
+Desenlace: Alex, consciente de la amenaza, decide enfrentarse al villano que busca explotar sus habilidades. Con la ayuda de los animales del bosque y su control sobre la naturaleza, Alex logra frustrar los malvados planes del villano y proteger a su comunidad. Al final, decide usar sus poderes para preservar la armonía entre los humanos y la naturaleza, convirtiéndose en un guardián del bosque y un defensor de la ecología.
